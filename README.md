@@ -1,5 +1,3 @@
-<img align="center" width="240" src="https://media.tenor.com/YM91d6z3icQAAAAi/anime.gif" />
-
 <h1 align="center"> 𝑺𝒊𝒍𝒗𝒂 𝑻𝒆𝒄𝒉 ⭐</h1>
 
 <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
